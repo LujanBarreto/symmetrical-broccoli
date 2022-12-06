@@ -1,2 +1,2 @@
 # symmetrical-broccoli
-Bienvenidxs a mi repositorio. 
+Bienvenidxs a mi repositorio. 🤡
